@@ -16,7 +16,6 @@ I'm not gonna lie, all of my personal projects on here are so old I'm a bit emba
 - [Fire Without Smoke](https://firewithoutsmoke.com/)
 - [Studio Ma](https://studioma.com/)
 - [Ballinger](https://www.ballinger.com/)
-- [Hide & Seek](https://hideandseekmedia.com/)
 
 ___
 
